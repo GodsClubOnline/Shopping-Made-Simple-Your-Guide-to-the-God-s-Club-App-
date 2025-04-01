@@ -1,0 +1,1 @@
+# Shopping-Made-Simple-Your-Guide-to-the-God-s-Club-App-
